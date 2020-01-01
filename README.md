@@ -655,8 +655,7 @@ Chắc chắn bài viết còn có nhiều thiếu sót, mong các bạn thông 
 
 Liên lạc của tôi:
 
-- Email: nguyencongduc3112@gmail.com
-
+- Email: tridung2721@gmail.com
 - Skype: khong_giong_ai
 
 Xin chân thành cảm ơn!
